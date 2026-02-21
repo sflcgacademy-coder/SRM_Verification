@@ -1,2 +1,2 @@
-# SRM_Verification
-Application Description
+# [SRM] Universal
+Terms of Service & Privacy Police
